@@ -9,8 +9,8 @@
 
 <br>
 <br>
-<img width="20" height="20" alt="tumblr_2dad4cea902b4a7bfb2ae5fb957ae17e_1974bd68_75" src="https://github.com/user-attachments/assets/540fc52e-9560-47ff-9b09-86d762fe8c55" />
-⠀𓈒⠀vee⠀⠀♱⠀⠀cyn　 𓎟𓎟 　she　they <img width="20" height="20" alt="tumblr_2018c3bfa13b3751b847a4cacce37397_c703ab75_75" src="https://github.com/user-attachments/assets/64a6d704-20ad-4b4c-a74f-b6548efcce21" />
+<img width="20" height="20" alt="tumblr_2dad4cea902b4a7bfb2ae5fb957ae17e_1974bd68_75" src="https://github.com/user-attachments/asets/540fc52e-9560-47ff-9b09-86d762fe8c55" />
+⠀𓈒⠀vee⠀⠀♱⠀⠀jill　 𓎟𓎟 　she　they <img width="20" height="20" alt="tumblr_2018c3bfa13b3751b847a4cacce37397_c703ab75_75" src="https://github.com/user-attachments/assets/64a6d704-20ad-4b4c-a74f-b6548efcce21" />
 <br>
 17-20､⠀-15 dni ‎ +⠀ 𓈒!
 <br>
